@@ -1,1 +1,0 @@
-# kennethtanaka.github.io
